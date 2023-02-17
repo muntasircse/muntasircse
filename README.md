@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **muntasir.anik3108@gmail.com**
 
-- ⚡ Fun fact **I think i'm naughty**
+- ⚡ Fun fact **I think i'm kind of funny**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
